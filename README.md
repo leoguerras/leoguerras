@@ -25,7 +25,8 @@ With over **7 years of experience** in data management, finance, and digital mar
 ## 🌍 Languages
 
 - English 🇺🇸 (Fluent – C1)  
-- Portuguese 🇧🇷 (Fluent – C1)  
+- Portuguese 🇧🇷 (Fluent – C2)
+- Spanish 🇲🇽 (Mother tongue)
 - French 🇫🇷 (Intermediate – B1)  
 
 ---
