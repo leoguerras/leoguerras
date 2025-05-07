@@ -9,7 +9,7 @@ Building better systems, one solution at a time.
 
 I'm a proactive and empathetic business professional with a strong foundation in **accounting**, **data analysis**, and **operations management**. I’m also the founder of [**Inglés con Leo**](https://www.inglesconleo.webnode.cl), an online platform offering personalized English instruction.
 
-With over **5 years of experience** in data management, finance, and digital marketing, I combine business acumen with technical proficiency to drive results and deliver meaningful impact.
+With over **7 years of experience** in data management, finance, and digital marketing, I combine business acumen with technical proficiency to drive results and deliver meaningful impact.
 
 ---
 
