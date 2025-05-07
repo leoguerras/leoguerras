@@ -33,7 +33,7 @@ With over **7 years of experience** in data management, finance, and digital mar
 
 ## 📈 Current Projects
 
-- 📊 Financial data analysis as Accountant I at **Vacasa LLC** 
+- 📊 Financial data analysis at **Vacasa LLC** 
 - 🎓 Managing and teaching at **Inglés con Leo**  
 
 ---
